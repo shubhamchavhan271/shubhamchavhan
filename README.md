@@ -8,7 +8,7 @@
 
 - 🔭 I’m currently working on my skills!
 
-- 🌱 I’m currently learning **Post Graduation Diploma Course In Data Science – Machine Learning & AI Course In Pune**
+- 🌱 I have completed **Post Graduation Diploma Course In Data Science – Machine Learning & AI Course In Pune**
 
 - 👨‍💻 All of my projects are available at [https://github.com/shubhamchavhan271](https://github.com/shubhamchavhan271)
 
