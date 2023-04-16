@@ -16,8 +16,7 @@
 
 - 📫 How to reach me **shubhamdsmind@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1NkyPfUl0k17osg9qUcdRzOXv89egUuI3/view?usp=share_link](https://drive.google.com/file/d/1NkyPfUl0k17osg9qUcdRzOXv89egUuI3/view?usp=share_link)
-
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Oj6AhzXphCYm5QrjkxbLKsKmQGuT5Sy8/view?usp=share_link]
 - ⚡ Fun fact **I am Funny😉**
 
 <h3 align="left">Connect with me:</h3>
